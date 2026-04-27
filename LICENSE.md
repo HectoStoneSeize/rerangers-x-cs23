@@ -1,4 +1,4 @@
-
+re:rangers x vip Script is the best re:rangers x Script, featuring infinite resources and speed. Safe and powerful for all your needs.
 
 
 
